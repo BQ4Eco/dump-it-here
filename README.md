@@ -15,7 +15,7 @@ Earn Money from Your Site
 
 
 ####Quotes on Persistence
--http://www.inc.com/david-van-rooy/looking-for-extra-motivation-try-one-of-these-52-awesome-persistence-quotes.html?cid=sf01002
+- http://www.inc.com/david-van-rooy/looking-for-extra-motivation-try-one-of-these-52-awesome-persistence-quotes.html?cid=sf01002
 
 
 ####Top 100 Inspirational Quotes
