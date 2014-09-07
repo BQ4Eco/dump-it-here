@@ -10,6 +10,10 @@ Earn Money from Your Site
 
 ================================================================================================
 
+#### 7 Famous Quotes You Definitely Didn't Know Were From Women
+- http://www.forbes.com/sites/maseenaziegler/2014/09/01/how-we-all-got-it-wrong-women-were-behind-these-7-famously-inspiring-quotes/
+
+
 ####10 Quotes Salespeople Should Memorize
 - http://www.inc.com/geoffrey-james/10-quotes-salespeople-should-memorize.html?cid=sf01002
 
