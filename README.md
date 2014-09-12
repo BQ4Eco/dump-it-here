@@ -10,6 +10,10 @@ Earn Money from Your Site
 
 ================================================================================================
 
+#### 19 Inspiring Quotes That Launched New Businesses
+- http://www.inc.com/neil-parmar/inspiring-quotes-that-launched-new-businesses.html?cid=sf01002
+
+
 #### 7 Famous Quotes You Definitely Didn't Know Were From Women
 - http://www.forbes.com/sites/maseenaziegler/2014/09/01/how-we-all-got-it-wrong-women-were-behind-these-7-famously-inspiring-quotes/
 
