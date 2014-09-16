@@ -10,6 +10,9 @@ Earn Money from Your Site
 
 ================================================================================================
 
+#### 10 Inspiring Quotes That Reduce Stress
+- http://www.inc.com/geoffrey-james/10-quotes-that-reduce-stress.html?cid=sf01002
+
 #### 19 Inspiring Quotes That Launched New Businesses
 - http://www.inc.com/neil-parmar/inspiring-quotes-that-launched-new-businesses.html?cid=sf01002
 
