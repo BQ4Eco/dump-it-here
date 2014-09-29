@@ -10,6 +10,8 @@ Earn Money from Your Site
 
 ================================================================================================
 
+http://www.inc.com/john-boitnott/7-killer-quotes-from-shark-tank-s-barbara-corcoran.html?cid=sf01002
+
 #### 10 Inspiring Quotes That Reduce Stress
 - http://www.inc.com/geoffrey-james/10-quotes-that-reduce-stress.html?cid=sf01002
 
