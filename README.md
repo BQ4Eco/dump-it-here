@@ -10,6 +10,8 @@ Earn Money from Your Site
 
 ================================================================================================
 
+http://www.inc.com/jeff-haden/top-350-inspiring-motivational-quotes-to-tweet-and-share.html?cid=sf01002
+
 http://www.inc.com/jayson-demers/35-quotes-about-perseverance-and-never-giving-up.html?cid=sf01002
 
 http://www.inc.com/john-boitnott/7-killer-quotes-from-shark-tank-s-barbara-corcoran.html?cid=sf01002
