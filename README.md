@@ -7,6 +7,8 @@ Earn Money from Your Site
 
 -http://www.inc.com/david-van-rooy/looking-for-extra-motivation-try-one-of-these-52-awesome-persistence-quotes.html?cid=sf01002
 
+- http://www.webcore-it.com/colorful-background/#
+
 
 ================================================================================================
 
