@@ -12,6 +12,8 @@ Earn Money from Your Site
 
 ================================================================================================
 
+http://www.inc.com/welcome.html?destination=http://www.inc.com/lolly-daskal/65-quotes-that-will-dare-you-to-do-great-things.html?cid=sf01002
+
 http://www.hongkiat.com/blog/inspirational-quotes-posters/
 
 http://www.inc.com/jeff-haden/top-350-inspiring-motivational-quotes-to-tweet-and-share.html?cid=sf01002
