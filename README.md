@@ -12,6 +12,9 @@ Earn Money from Your Site
 
 ================================================================================================
 
+17 Quotes to Instantly Inspire Teamwork When Unity Is Lost
+ - http://www.entrepreneur.com/article/269941
+
 http://www.inc.com/welcome.html?destination=http://www.inc.com/lolly-daskal/65-quotes-that-will-dare-you-to-do-great-things.html?cid=sf01002
 
 http://www.hongkiat.com/blog/inspirational-quotes-posters/
